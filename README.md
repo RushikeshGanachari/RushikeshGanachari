@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **rushikeshganachari111@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/10ShuMdoEb9g6EmX6NkJup-Ec4q8H4Dm6/view?usp=share_link](https://drive.google.com/file/d/10ShuMdoEb9g6EmX6NkJup-Ec4q8H4Dm6/view?usp=share_link)
+- 📄 Know about my experiences [My Resume](https://drive.google.com/file/d/1uFHHtgoJI8ztBxx4xuXqrc5KxFeO8yCQ/view?usp=share_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
